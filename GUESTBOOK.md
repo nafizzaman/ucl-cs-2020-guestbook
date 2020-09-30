@@ -18,4 +18,4 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 ![](https://i.redd.it/hqculc19byl11.jpg)
 
 ## Nafiz Zaman
-Read [Haikyuu] (https://en.wikipedia.org/wiki/Haikyu!!) damn it.
+Read [Haikyuu](https://en.wikipedia.org/wiki/Haikyu!!) damn it.
